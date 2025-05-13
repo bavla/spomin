@@ -1,4 +1,4 @@
 # Sredin seminar
 
-  * 1364. sredin seminar: Vladimir Batagelj: Korenine / moja spogledovanja z rodoslovjem
+  * Sredin seminar 1364: Vladimir Batagelj: Korenine / moja spogledovanja z rodoslovjem
           
