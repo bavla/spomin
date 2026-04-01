@@ -1,0 +1,2 @@
+# Sredin seminar - Spominčice
+
