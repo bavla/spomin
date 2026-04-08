@@ -5,5 +5,6 @@
    * **1381. sredin seminar**: Računalništvo v sedemdesetih, 1. del. [MP4](http://gofile.me/6O0mt/qH2SWy49E), 
    * **1382. sredin seminar**: Računalništvo v sedemdesetih, 2. del. [MP4](http://gofile.me/6O0mt/qnaoX3EmC), [PDF](http://gofile.me/6O0mt/9FmRDXzY5) (1381+2)
    * **1383. sredin seminar**: Računalništvo v osemdesetih, 1. del. [MP4](http://gofile.me/6O0mt/AaA5MOXq3), [PDF](http://gofile.me/6O0mt/EfGs870H9)
+   * **1384. sredin seminar**: Antek - Anton Pavel Železnikar 1928-2026. [MP4](http://gofile.me/6O0mt/JPKbutoCC), [PDF](http://gofile.me/6O0mt/Hk9E1zSbX) 
           
   
