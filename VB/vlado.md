@@ -1,3 +1,0 @@
-# Vlado
-
-- [Slike](./pics/)
