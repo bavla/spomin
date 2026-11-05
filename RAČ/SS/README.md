@@ -13,7 +13,7 @@
    * **1390. sredin seminar**: Računalništvo v devetdesetih, 2. del. [MP4](http://gofile.me/6O0mt/a0I6QtrfD), [PDF](http://gofile.me/6O0mt/R3cpQrV4R) 
    * **1391. sredin seminar**: Računalništvo v devetdesetih, 3. del. [MP4](http://gofile.me/6O0mt/BBhlFYk6M), [PDF](http://gofile.me/6O0mt/8cVbPiSUI) (1387+0+1)
    * **1392. sredin seminar**: Emil Hudomalj. Računalništvo na medicini, 1. del. [MP4](http://gofile.me/6O0mt/2q3PnErJQ)
-   * **1393. sredin seminar**: Emil Hudomalj. Računalništvo na medicini, 2. del. [MP4](http://gofile.me/6O0mt/uVeP1u7jt)
+   * **1393. sredin seminar**: Emil Hudomalj. Računalništvo na medicini, 2. del. [MP4](http://gofile.me/6O0mt/uVeP1u7jt), [PDF](http://gofile.me/6O0mt/PJnr5QvXI) (1392+3)
 
     
           
