@@ -14,6 +14,7 @@
    * **1391. sredin seminar**: Računalništvo v devetdesetih, 3. del. [MP4](http://gofile.me/6O0mt/BBhlFYk6M), [PDF](http://gofile.me/6O0mt/8cVbPiSUI) (1387+0+1)
    * **1392. sredin seminar**: Emil Hudomalj. Računalništvo na medicini, 1. del. [MP4](http://gofile.me/6O0mt/2q3PnErJQ)
    * **1393. sredin seminar**: Emil Hudomalj. Računalništvo na medicini, 2. del. [MP4](http://gofile.me/6O0mt/uVeP1u7jt), [PDF](http://gofile.me/6O0mt/PJnr5QvXI) (1392+3)
+   * **1394. sredin seminar**: Tomaž Pisanski. ZX Spectrum in logo – z umetno inteligenco, 1.del. [MP4](https://1drv.ms/v/c/f8ccfa9ec0637679/IQCpFIzy58_PQJTlyCPCVy1VASNOiWzs91OmxnmjQxyEraA?e=gZhD6j), [PDF](https://1drv.ms/b/c/f8ccfa9ec0637679/IQBU6HbHzrVLQJyJc4Rd4xX1AeRs2n9EGJ_Uuuvar_pinF0?e=K8hrJ8) 
 
     
           
